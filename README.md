@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @JTspectre
 - 📫 How to reach me ... The Long Dark Modding Server on Discord - https://discord.gg/DmEZK4XZ3g
 - TLD - RECIPE REQUESTS WILL BE IGNORED AT THIS TIME (unless I happen to like them)
 
